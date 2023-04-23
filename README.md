@@ -1,2 +1,2 @@
 # virgo-portos
-A bunch of portfolio created by me
+A rough journey of ME!
